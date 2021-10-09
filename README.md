@@ -1,1 +1,1 @@
-Materiały Dla uczniów z zakresu podstaw HTML/ Materials for Students about HTML 
+Materiały Dla Uczniów z Zakresu Podstaw HTML/ Materials for Students about HTML 
